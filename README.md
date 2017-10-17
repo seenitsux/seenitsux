@@ -1,2 +1,2 @@
 # seenitsux
-Start
+The beginning of something great
